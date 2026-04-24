@@ -10,4 +10,4 @@
 
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Grenze+Gotisch&duration=2000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=You're+right+im+not+cut+out+for+the+big+time;sit+tight+im+not+far+out+from+you+tonight;the+time+we've+lost+watching+from+the+inside;im+just+a+man+so+whats+the+plan%3F" alt="Typing SVG" /></a>
 
-<p align="center"><a href="hhttps://github.com/schizopup">%E2%A0%80%E2%A0%80────</a></p>
+<p align="center"><a href="hhttps://github.com/schizopup">────</a></p>
