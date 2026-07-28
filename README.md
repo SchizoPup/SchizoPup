@@ -4,7 +4,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ㅤ<p align="center">![](https://komarev.com/ghpvc/?username=schizopup&color=1f1f1f&label=&style=plastic&abbreviated=true)
 <p align="center">hello im death or puppy
   <p align="center"><a href="hhttps://github.com/schizopup">────</a></p>
-<p align="center"><a href="https://romanticallyapocalyptic.straw.page/">info</a></p>
+<p align="center"><a href="[https://erection.straw.page/]">info</a></p>
 <p align="center"><a href="https://schizopup.atabook.org/">my attabook</a></p>
 ⠀⠀⠀<p align="center"><img width="1131" height="685" alt="Image" src="https://github.com/user-attachments/assets/e31fd46d-39f3-4262-8e95-abcebdf890cb" />
 
